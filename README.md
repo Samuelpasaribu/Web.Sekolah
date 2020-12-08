@@ -31,4 +31,4 @@ Untuk fiturnya masih sangas sederhana, contohnya sebagai berikut
 
 ### Tentang Saya
 
-Samuel Pasaribu Jurusan Teknik Komputer Informatika stambuk 2015. https://www.instagram.com/samuelpasarribu/
+Samuel Pasaribu Jurusan Teknik Komputer Informatika stambuk 2015. https://www.instagram.com/samuelpasaribu__/
